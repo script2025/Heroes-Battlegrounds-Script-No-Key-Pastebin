@@ -1,0 +1,1 @@
+# Heroes-Battlegrounds-Script-No-Key-Pastebin
